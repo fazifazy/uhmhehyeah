@@ -2,7 +2,7 @@ aa# uhmhehyeah
 MEEE!!!!
 <p align="center">
   <a href="[https://yuna0x0.com](https://floofylovessevagoth.straw.page)">
-    <img src="(https://ca.pinterest.com/pin/128985976822393381/)" alt="Banner" width="50%">
+    <img src="(https://imgur.com/a/th9Ugkg)" alt="Banner" width="50%">
   </a>
 </p>
 
