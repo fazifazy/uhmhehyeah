@@ -1,7 +1,7 @@
-# uhmhehyeah
+aa# uhmhehyeah
 MEEE!!!!
 <p align="center">
-  <a href="https://yuna0x0.com">
+  <a href="[https://yuna0x0.com](https://floofylovessevagoth.straw.page)">
     <img src="https://cdn.yuna0x0.com/yuna/img/72408310_p5.webp" alt="Banner" width="50%">
   </a>
 </p>
@@ -17,11 +17,7 @@ MEEE!!!!
 <p align="center">❤ I'm currently working on Software, Anime / Manga, Game Dev, and Content Creation.</p>
 
 <p align="center">
-  <strong><a href="https://yuna0x0.com">Website</a></strong> |
-  <strong><a href="https://x.com/yunaNULL">Twitter</a></strong> |
-  <strong><a href="https://bsky.app/profile/yuna0x0.com">Bluesky</a></strong> |
-  <strong><a href="https://discord.gg/nYXzaUS">Discord</a></strong> |
-  <strong><a href="https://yuna0x0.com/yuna0x0.asc">PGP</a></strong>
+
 </p>
 
 <p align="center">
